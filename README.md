@@ -2,7 +2,7 @@
 
 https://404archive.com/product/3ds-max-3d-models-15-tb-library-vraycorona/
 
-3ds Max Corona 2025
+3ds Max Corona 2025 Interiors Vol.1
 
 https://404archive.com/product/3ds-max-corona-2025-interiors-vol-1/
 
